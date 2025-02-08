@@ -1,6 +1,6 @@
 # Sprunki Star and Heart: The Ultimate Cosmic Adventure
 
-[https://sprunki.cool/game/sprunki-star-and-heart](sprunki star 和 heart)
+https://sprunki.cool/game/sprunki-star-and-heart
 
 ## What is Sprunki Star and Heart Modded Version?
 
